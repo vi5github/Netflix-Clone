@@ -1,0 +1,6 @@
+![n1](https://github.com/vi5github/Netflix-Clone/assets/137641576/b03a3c2b-4cc5-40ce-aa6a-1db4645c9fb7)
+![n2](https://github.com/vi5github/Netflix-Clone/assets/137641576/75e76a2b-bab1-4857-abab-7f2479f5fc45)
+![n3](https://github.com/vi5github/Netflix-Clone/assets/137641576/3dba8274-5b1a-48ea-9f78-1ca10acfa54d)
+![n4](https://github.com/vi5github/Netflix-Clone/assets/137641576/45de32ea-b049-40e2-aa10-58c0da65056f)
+![n5](https://github.com/vi5github/Netflix-Clone/assets/137641576/e18cafc9-a517-4a9f-b0f6-bb9c1443263a)
+![n6](https://github.com/vi5github/Netflix-Clone/assets/137641576/f22f138a-9c8b-490b-82c8-479041d91486)
